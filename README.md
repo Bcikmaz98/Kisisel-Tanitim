@@ -1,1 +1,1 @@
-# Ki-isel-Tan-t-m
+# Kisisel Tanitim
